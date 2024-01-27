@@ -1,1 +1,0 @@
-Welcome to my profile page. In here you will find some of my projects, as well as my most up-to-date resume. My links to any relevant social media can also be found. 
